@@ -10,7 +10,7 @@ Also you can protect your own codes with FUD Crypter 2024. You can get FUD Resul
 
 [Click here to visit our site](https://venom.software/product/private-fud-crypter/)
 
-[Join Telegram Channel](https://t.me/VenomToolz)
+[Telegram Contact](https://t.me/VenomSoftwares)
 
 **Features :**
 
@@ -48,4 +48,4 @@ You can encrypt any file to get Fully Undetectable (FUD) results in Scantime and
 
 [Click here to visit our site](https://venom.software/product/private-fud-crypter/)
 
-[Join Telegram Channel](https://t.me/VenomToolz)
+[Telegram Contact](https://t.me/VenomSoftwares)
